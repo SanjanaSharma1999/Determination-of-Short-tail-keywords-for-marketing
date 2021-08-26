@@ -1,1 +1,1 @@
-# Determination-of-Short-tail-keywords
+# Determination-of-Short-tail-keywords for marketing
